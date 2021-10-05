@@ -1,2 +1,2 @@
 # Myblockcode
-Deneme Kode 
+Not Defteri üzerinden ilk değişiklik!
